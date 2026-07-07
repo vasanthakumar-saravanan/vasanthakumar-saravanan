@@ -12,7 +12,7 @@
 
 ## 👨‍💻 About Me
 
-🎓 **B.Tech (IT) – 2nd Year**  
+🎓 **B.Tech (IT) – 3nd Year**  
 🏫 St. Joseph's Institute of Technology  
 
 💡 Passionate about:
